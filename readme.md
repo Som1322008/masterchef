@@ -1,0 +1,1 @@
+This Eggless Chocolate Cake is a simple and easy one bowl recipe. A delicious chocolate cake made with whole wheat flour. Unbelievably soft and spongy, this eggless cake recipe will satisfy chocolate lovers and cake lovers alike.
